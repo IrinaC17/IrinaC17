@@ -250,7 +250,7 @@ I'm passionate about continuous learning and expanding my skills in analytics, b
 ## 📫 Connect With Me
 
 - 💼 LinkedIn: www.linkedin.com/in/irina-cicio
-- 📧 Email: Your Email Here
+- 📧 Email:[c_dyna_c@yahoo.com](mailto:c_dyna_c@yahoo.com)
 
 ---
 
